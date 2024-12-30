@@ -6,4 +6,4 @@ Unser Zeil ist es anderen die Möglichkeiten beim selbst anbau von Produkten wie
 Erzähl den anderen doch in der Beschreibung deines Rezeptes was du so für Erfahrungen gemacht hast.
 Unter den Rezepten gibt es auch die Möglichkeit sich über die Rezepte und anderes auszutauschen. 
 
-Also ? Worauf wartest du. Klick dich rein und erzähl den anderen von deinen Erfahrunge
+Also ? Worauf wartest du. Klick dich rein und erzähl den anderen von deinen Erfahrungen ;)
