@@ -1,9 +1,9 @@
-Herzlich Willkommen !
-Hier kannst du all deine einfachen Rezepte aus ganz Europa hochladen und mit anderen zum nachmachen Teilen :) 
-Außerdem findest du hier auch einfache Rezepte von anderen, klick dich doch mal rein.
+Welcome !
+Here you can upload all your simple recipes from all over Europe and share them with others to follow :) 
+You can also find simple recipes from others here, just take a look.
 
-Unser Zeil ist es anderen die Möglichkeiten beim selbst anbau von Produkten wiederzuspiegeln. 
-Erzähl den anderen doch in der Beschreibung deines Rezeptes was du so für Erfahrungen gemacht hast.
-Unter den Rezepten gibt es auch die Möglichkeit sich über die Rezepte und anderes auszutauschen. 
+Our goal is to show others the possibilities of growing products yourself. 
+In the description of your recipe, tell the others what experiences you have had.
+Among the recipes there is also the opportunity to exchange ideas about the recipes and other things. 
 
-Also ? Worauf wartest du. Klick dich rein und erzähl den anderen von deinen Erfahrungen ;)
+So? What are you waiting for. Click in and tell the others about your experiences ;)
