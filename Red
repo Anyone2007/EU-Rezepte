@@ -1,4 +1,0 @@
-<!---DOCETYPE>
-<html>
-<color: red>
-
